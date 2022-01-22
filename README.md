@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlishaPlayZ
+- 👀 I’m interested in Programming, music, dance and basketball 
+- 🌱 I’m currently learning Python And Jaga Script
+- 📫 How to reach me https://discord.gg/spyop
